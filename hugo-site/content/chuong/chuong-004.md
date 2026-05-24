@@ -1,0 +1,86 @@
+---
+title: "Chương 4: Sụp đổ dưới đầu ngón tay (Nhẹ H)"
+chapter: 4
+weight: 4
+slug: "chuong-4"
+---
+
+Cây rìu nặng nề rơi xuống đất, trên mặt bùn đất tạo thành một vòng bụi nhỏ, kéo theo sự tĩnh lặng chết chóc. Nhưng sự tĩnh lặng ấy chỉ kéo dài chưa đầy một giây, đã bị xé nát bởi tiếng thở dốc ngày càng gấp gáp của hai người đang quấn lấy nhau.
+
+Chu Đình không vì rìu rơi mà buông cô ra. Ngược lại, vì Tô Mạn mềm nhũn, trọng tâm đổ về sau, hắn thuận thế ôm chặt hơn. Cái chân phải tàn khuyết nhưng cứng như sắt kia, ngang tàng chen vào giữa hai chân Tô Mạn, đầu gối chặn lên bắp đùi cô, đinh chặt cô vào đống củi sau lưng phảng phất mùi gỗ thơm mát lạnh.
+
+"Cô Tô, thế là không xong rồi?"
+
+Giọng Chu Đình sát bên tai cô, cái chất giọng như đã qua khói thuốc hun đúc, mang theo một cảm giác áp bách đầy nam tính và không cho phép nghi ngờ.
+
+Tô Mạn cảm thấy lưng đau rát vì đống củi thô ráp, nhưng càng làm cô hoảng hốt, là bàn tay đầy vết chai kia. Bàn tay vốn đặt trên mu bàn tay cô, giờ như một con rắn độc trơn trượt, theo gấu áo tình nguyện mỏng mảnh, lặng lẽ luồn vào.
+
+Sự đối lập cực độ giữ thô ráp và mịn màng.
+
+Tô Mạn mặc một chiếc quần thể thao ngắn nhất của mùa hè, lớp vải cotton yếu ớt dưới sự vò nặn của người đàn ông. Chu Đình dùng ngón tay dài đầy vết chai dày, mang theo vị mồ hôi mặn chát sau lao động, và mùi gỗ thơm mát từ củi mới bổ, cực kỳ ngang tàng móc vào mép quần cô.
+
+"Không... đừng mà..."
+
+Tô Mạn xấu hổ nghiêng đầu, nước mắt lưng tròng. Cô cố giãy dụa, nhưng cái chân tàn kia như cột sắt đóng rễ, bất động khóa chặt nửa thân dưới của cô. Tư thế này làm cô cảm thấy vô cùng bất lực, như một con nai non bị ép lên thớt, chỉ đành để mặc người thợ săn già dặn tùy ý giày xéo lãnh địa của mình.
+
+động chạm run rẩy.
+
+Khi đầu ngón tay thô ráp thực sự ma sát qua mặt trong đùi non — nơi mẫn cảm nhất, chưa từng thấy ánh sáng, thậm chí Chu Viễn cũng chưa từng chạm đến — Tô Mạn bỗng rùng mình một cái. Cảm giác đó không phải khoái cảm thuần túy, mà là một nỗi kinh hoàng mang theo nhói đau tinh vi. Đó là lực đạo của một lão binh, thô lỗ, trực tiếp, tràn đầy ý muốn hủy diệt, như thể muốn nghiền nát lớp vỏ văn minh của cô.
+
+Đầu ngón tay đi lên, với hơi nóng tuyệt vọng, mục tiêu rõ ràng.
+
+Bùng nổ cảm giác cấm kỵ.
+
+Lúc này, bên ngoài nhà kho vang lên tiếng loa phóng thanh của ủy ban thôn. Giọng máy móc và the thé đang phát: "...chúng ta phải kiên trì xóa đói giảm nghèo khoa học, nâng cao tố chất nông dân, xây dựng nông thôn văn minh..."
+
+Âm thanh loa vang vọng trong thung lũng trống trải, từng chữ như cái tát giáng vào mặt Tô Mạn. Ngoài cửa sổ là khẩu hiệu xóa đói giảm nghèo tượng trưng cho tiến bộ, nhân phẩm và văn minh; còn trong căn nhà kho tối tăm, ẩm ướt, đầy mùi mốc này, cô — cán sự sinh viên phụ trách "kiến thiết văn minh" — đang bị đối tượng hỗ trợ trên danh nghĩa, cha ruột của bạn trai cô, dùng phương thức dã man nhất chà đạp.
+
+"Cô Tô, nghe thấy không? Họ đang khen cô đấy."
+
+Chu Đình cười khẩy trầm thấp, đầu ngón tay bỗng nhiên đâm sâu, chính xác bắt được nốt đậu đỏ nhạy cảm nhất ẩn náu trong từng lớp cánh hoa. Hắn không có màn dạo đầu, không có thăm dò dịu dàng, chỉ dùng đầu ngón tay đầy vết chai cứng, tiến hành sự ve vuốt thô lỗ và nhanh chóng.
+
+"A —!"
+
+Tô Mạn phát ra một tiếng kêu rách nát, cô bỗng ngửa cổ thon dài, lưng đập mạnh vào đống củi. Cảm giác ấy quá đáng sợ. Ngón tay Chu Đình không phải sự mềm mại được nuông chiều của con trai thành phố, mà là khi vũ khí sắc lạnh từ năm tháng cầm súng, leo trèo, chiến đấu.
+
+Mỗi lần ve vuốt, lớp vết chai dày như giấy nhám cào qua vùng thịt non cực kỳ nhạy cảm ấy. Cảm giác nhói đau này không hề triệt tiêu khoái cảm, mà như đổ thêm dầu vào lửa, làm thứ cảm giác tê dại bùng nổ theo cấp số nhân.
+
+Mất kiểm soát cảm quan hoàn toàn.
+
+Tô Mạn hoàn toàn lạc lối trong sự xấu hổ tột cùng và khoái cảm sinh lý điên cuồng. Lý trí từng làm cô tự hào, tan biến không còn tăm tích trước một chút ma sát thô ráp ấy. Ngón chân cô cuộn chặt, đế giày ma sát mặt đất phát ra âm thanh chói tai. Hai tay cô không còn cố đẩy Chu Đình ra, mà vô thức vói ra sau, móng tay cắm chặt vào kẽ gỗ thô ráp, thậm chí có mảnh dằm đâm vào kẽ móng tay cũng không hay.
+
+"Nhìn kìa, Cô Tô, chỗ này của cô... thật thà hơn miệng cô nhiều."
+
+Chu Đình cảm nhận chất lỏng nóng hổi như suối phun dưới đầu ngón tay. Thứ dịch nóng hổi, nhầy nhụa nhanh chóng làm ướt ngón tay hắn, thậm chí theo hổ khẩu chảy xuống. Hắn không ngừng, còn biến bản gia tăng tốc độ. Hắn như đang lau nòng súng trên chiến trường, dùng một tiết tấu tàn khốc, cướp bóc ở lãnh địa riêng tư nhất của Tô Mạn.
+
+"Không... cầu xin... Chu... Chu đại ca..."
+
+Giọng Tô Mạn đã biến dạng hoàn toàn, mang theo tiếng khóc và sự cầu xin đau lòng. Nhưng trong tai Chu Đình, đó lại như thuốc kích thích. Hơi thở nặng nhọc của hắn phun lên gáy Tô Mạn, như một con dã thú đang động dục.
+
+Khoảnh khắc mất kiểm soát.
+
+Theo lần cuối Chu Đình nghiền nát nặng nề, đại não Tô Mạn nháy mắt nổ tung một mảnh sáng trắng mịt mù. Cảm giác ấy như một cơn lũ quét dài ngày trời, khoảnh khắc này xô sập mọi đê điều. Thân thể cô co giật dữ dội, bụng dưới co thắt từng hồi, cơn thủy triều chưa từng trải như sóng biển nhấn chìm cô. Cô há miệng, nhưng không phát ra âm thanh nào, chỉ có hơi thở gấp gáp và rách nát vọng trong nhà kho.
+
+Thật lâu, thật lâu.
+
+Tô Mạn như bãi bùn bị rút hết xương, cả người mềm nhũn nằm trong lòng Chu Đình, hai tay vô lực buông thõng. Mắt cô vô hồn, nước mắt theo khóe mắt chảy vào tóc mai, toát ra vẻ tan hoang sau khi bị bạo lực hủy diệt.
+
+Chu Đình mặt không cảm xúc rút tay ra. Hắn cúi mắt, nhìn chằm chằm chất lỏng trong suốt, sền sệt ở đầu ngón tay. Đó là bằng chứng nữ sinh viên đến "cứu rỗi" hắn đã khuất phục dưới đầu ngón tay thô lỗ của hắn.
+
+Sau đó, hắn làm một động tác khiến Tô Mạn cả đời hổ thẹn.
+
+Hắn không tìm khăn giấy, mà cực kỳ tự nhiên và lạnh nhạt, nắm lấy chiếc áo ngực trắng tinh của Tô Mạn, dùng lớp vải in dòng chữ "Xóa đói giảm nghèo đi trước", từ tốn lau sạch chất lỏng trên đầu ngón tay. Tô Mạn cảm nhận làn hơi lạnh trên ngực, và xúc cảm ngón tay đàn ông di chuyển qua lớp vải, xấu hổ đến muốn chết ngay lập tức.
+
+Đòn tâm lý cuối cùng.
+
+Chu Đình tùy ý vứt tay, gấu áo sơ mi trắng bị vò đến lộn xộn, trên đó dính một vệt ướt nhỏ khóe mắt. Hắn khập khiễng xoay người, bóng lưng dưới ánh mặt trời xiên vào càng thêm cô ngạo và cứng rắn.
+
+Trước khi bước ra khỏi cửa nhà kho, hắn dừng lại, không quay đầu, chỉ dùng giọng bình tĩnh đến phát điên thốt ra một câu:
+
+"Cô Tô, trình độ 'xóa đói giảm nghèo' thế này... cô hài lòng không?"
+
+Cánh cửa gỗ "kẽo kẹt" đóng lại.
+
+Nhà kho lại chìm vào tối tăm.
+
+Tô Mạn ngã ngồi trên đất đầy mùn cưa, không khí vẫn còn vương mùi gỗ tươi và mùi mồ hôi khó thoát của người đàn ông. Cô cúi nhìn chiếc áo sơ mi trắng bị vò nhàu, bị hoen dơ, chỉ cảm thấy tất cả nhân phẩm của đời mình, cùng với trận cao trào vừa rồi, đã bị người đàn ông này giẫm nát vào bùn đất.

@@ -1,0 +1,23 @@
+{{ $currentChapter := .Params.chapter }}
+{{ $prevChapter := sub $currentChapter 1 }}
+{{ $nextChapter := add $currentChapter 1 }}
+{{ $pages := where .Site.RegularPages "Section" "chuong" }}
+
+<nav class="chapter-nav">
+  <div class="nav-group">
+    <a href="/" class="nav-home" title="Mục lục">📖 Mục lục</a>
+  </div>
+  <div class="nav-group">
+    {{ range where $pages "Params.chapter" $prevChapter }}
+      <a href="{{ .RelPermalink }}" class="nav-prev">◀ Chương {{ $prevChapter }}</a>
+    {{ else }}
+      <span class="disabled">◀ Đầu truyện</span>
+    {{ end }}
+
+    {{ range where $pages "Params.chapter" $nextChapter }}
+      <a href="{{ .RelPermalink }}" class="nav-next">Chương {{ $nextChapter }} ▶</a>
+    {{ else }}
+      <span class="disabled">Hết truyện ▶</span>
+    {{ end }}
+  </div>
+</nav>

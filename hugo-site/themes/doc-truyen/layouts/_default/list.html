@@ -1,0 +1,18 @@
+{{ define "title" }}{{ .Site.Title }} - Mục lục{{ end }}
+{{ define "main" }}
+<div class="toc-header">
+  <h2>📖 Mục lục</h2>
+  <p class="toc-count">{{ len (where .Site.RegularPages "Section" "chuong") }} chương</p>
+</div>
+<ol class="chapter-list">
+  {{ range (where .Site.RegularPages "Section" "chuong").ByParam "weight" }}
+  <li>
+    <a href="{{ .RelPermalink }}">
+      <span class="ch-num">Chương {{ .Params.chapter }}</span>
+      <span class="ch-name">{{ .Title }}</span>
+      <span class="ch-arrow">→</span>
+    </a>
+  </li>
+  {{ end }}
+</ol>
+{{ end }}

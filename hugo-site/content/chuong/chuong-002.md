@@ -1,0 +1,86 @@
+---
+title: "Chương 2: Lấy thuốc làm danh"
+chapter: 2
+weight: 2
+slug: "chuong-2"
+---
+
+Tô Mạn ngồi bên mép chiếc giường gỗ kẽo kẹt, đầu ngón tay siết chặt lọ dầu hoa hồng. Cô không ngừng tự nhủ: đây là một phần của công tác xóa đói giảm nghèo. Chu Đình không chỉ là ba của Chu Viễn, mà còn là một quân nhân xuất ngũ bị thương tật. Nếu cô chỉ vì chút tình riêng mà từ chối việc "chăm sóc cơ bản" này, thì cái gọi là "lý tưởng xuống nông thôn" của cô sẽ thật sự trở thành một trò cười.
+
+Thế nhưng khi cô thực sự đối mặt với Chu Đình, chút tu dưỡng nghề nghiệp ấy lại như tờ giấy bị lửa thiêu, tan thành tro bụi trong nháy mắt.
+
+"Chu đại ca, em... giúp anh xoa thuốc nhé."
+
+Chu Đình không nhìn cô, hắn đang cố gắng cúi người xắn ống quần lên. Tấm lưng hắn rộng đến kinh người, chiếc áo ba lỗ màu xám đậm đã sớm ướt đẫm mồ hôi, dính chặt vào rãnh lưng, phập phồng theo từng nhịp thở nặng nhọc. Hắn không nói tiếng nào, chỉ đột ngột giật mạnh ống quần.
+
+Khoảnh khắc đó, hơi thở của Tô Mạn hoàn toàn rối loạn.
+
+Cái chân tàn tật ấy hiện ra ngay trước mắt cô. Vết sẹo màu đỏ sậm như một con rắn độc ghê rợn, từ đầu gối trườn thẳng vào sâu bên trong phần đùi bí ẩn của hắn. Vì nhiều năm không được chăm sóc, những mầm thịt sau khi vết thương khép lại hơi lồi lên, dưới ánh đèn hiện ra một vẻ đẹp bệnh hoạn, đầy tính xâm lược.
+
+Tô Mạn ngồi xổm xuống, đầu ngón tay chấm một chút dầu thuốc lành lạnh. Khi đầu ngón tay mềm mại của cô thực sự chạm vào mảng da thịt đó, cô bất giác rùng mình. Sự tương phản quá tàn nhẫn.
+
+Ngón tay cô thon dài, trắng nõn, móng tay lộ ra màu hồng phấn dịu dàng, như ngó sen non được nuông chiều trong thành phố, chỉ cần véo nhẹ là ra nước. Còn đùi của Chu Đình, thô tráng như một gốc cây cổ thụ bị sét đánh. Làn da màu đồng phủ đầy lớp lông đen, rậm và cứng, cơ bắp dưới sự xoa bóp của dầu thuốc hiện lên một độ đàn hồi đáng sợ, đó là sự hoang dã của kẻ đã từng giết người, đã được lửa đạn gột rửa.
+
+Dầu thuốc nhanh chóng nóng lên trong lúc xoa bóp. Tô Mạn có thể cảm nhận được, dưới lớp da thịt của gã đàn ông, máu đang cuồn cuộn chảy. Sức nóng tựa dung nham dưới lòng đất ấy, theo đầu ngón tay cô, đốt cháy một đường thẳng đến lồng ngực.
+
+"Ư..."
+
+Trong cổ họng Chu Đình bật ra một tiếng rên trầm thấp, âm thanh đó không giống tiếng rên vì đau đớn, mà như thể sự nhẫn nhịn tột cùng đã bị đẩy đến đường cùng.
+
+Động tác của Tô Mạn rất nhẹ, thậm chí có chút thành kính, đầu ngón tay cẩn thận lướt vòng qua những vết sẹo ghê rợn. Nhưng sự đụng chạm như có không như này, trong không gian kín mít, khô nóng này, lại giống một sự khêu gợi vô hình hơn là xoa bóp trực tiếp.
+
+"Mạnh chút."
+
+Chu Đình đột nhiên lên tiếng, giọng khàn đặc như lăn trên sỏi đá: "Cô Tô, cô đang xóa đói giảm nghèo, hay đang thêu hoa?"
+
+Tô Mạn đỏ bừng mặt, cắn môi tăng thêm lực. Vì phải dùng sức, cô không thể không rướn cả người về phía trước, chiếc áo sơ mi sau khi thấm mồ hôi trở nên nửa trong suốt dán chặt vào ngực. Theo chuyển động của cánh tay, đường cong mềm mại ấy như có không cọ qua đầu gối hắn.
+
+Ngay khoảnh khắc Tô Mạn định thu tay lại, Chu Đình động. Bàn tay to như miệng cọp, đầy chai sạn ấy, mang theo một sự thô bạo không cho phép chối từ, đột nhiên giữ chặt lấy mu bàn tay cô.
+
+"A..."
+
+Tô Mạn kinh hô một tiếng, chưa kịp phản ứng, Chu Đình đã dùng sức. Cái chân tàn của hắn như một thanh thép ghì chặt lấy đầu gối cô, khiến cô không thể động đậy, còn bàn tay to kia thì mang theo một sức mạnh hủy diệt, ép tay cô di chuyển về phía trước.
+
+"Cô Tô, chỗ này cũng đau."
+
+Giọng hắn vang lên ngay bên tai Tô Mạn, hơi nóng phả vào gáy cô, làm nổi lên một lớp da gà li ti. Tô Mạn bị ép theo lực của hắn, bàn tay từng tấc từng tấc lướt qua vết sẹo dữ tợn, vượt qua những mầm thịt gồ ghề, cuối cùng, hung hăng ấn lên nơi hạ bộ trung tâm nhất, cũng cấm kỵ nhất.
+
+Đó là điểm cuối cùng của văn minh.
+
+Cách một lớp vải quân dụng mỏng, lòng bàn tay Tô Mạn bất ngờ đặt lên một vật vô cùng cứng rắn, đang kịch liệt nhảy lên. Cảm giác như gang thép dữ tợn ấy, sự công kích muốn đâm thủng hết thảy ấy, nháy mắt nổ tung mọi lý trí của Tô Mạn thành mảnh vụn.
+
+"Ngươi... ngươi buông ra..."
+
+Tô Mạn sợ tới mức hốc mắt đỏ bừng. Cô muốn rút tay, nhưng tay Chu Đình như kìm sắt gắt gao đè nặng. Hắn thậm chí ác liệt tăng lực, làm tay cô lún sâu hơn vào trong khối dục vọng nóng bỏng ấy.
+
+"Thấy không, Cô Tô."
+
+Chu Đình cúi nhìn cô, ánh mắt sói không chút hổ thẹn, chỉ có sự điên cuồng muốn ăn tươi nuốt sống: "Đây là chỗ khó khăn của ta. Một kẻ tàn phế như ta, sống trong hẻm núi này hơn chục năm, cô định hỗ trợ thế nào?"
+
+Nước mắt Tô Mạn theo gò má rơi xuống đùi hắn.
+
+Cảm giác bội đức quá nặng nề. Cô là vị hôn thê của Chu Viễn, là sinh viên đến đây cống hiến. Thế nhưng trong khoảnh khắc này, trong căn phòng đầy mùi mồ hôi đàn ông và dầu thuốc cay nồng, cô lại thành trò chơi của kẻ quân nhân tàn phế này, bị ép dùng tay đo đạc thú tính kinh người của hắn.
+
+"Chu Viễn... Chu Viễn nếu biết..."
+
+Cô run giọng nhắc đến cái tên cuối cùng, cố gắng gọi lại lý trí của người đàn ông này.
+
+Nhưng nghe đến tên con trai, mắt Chu Đình càng trở nên âm lệ. Hắn đột nhiên vươn tay, thô lỗ bóp chặt cằm cô, ép cô ngẩng đầu.
+
+"Nó biết thì thế nào? Nó có được, đều là lão tử cho."
+
+Hắn cười lạnh, một tay kia theo cổ tay cô, chậm rãi mà hữu lực luồn vào vạt áo ướt đẫm: "Cô Tô, nếu sau này cô muốn vào cửa nhà họ Chu, thì cái việc 'xóa đói giảm nghèo' này, cô phải làm đến cùng."
+
+Lòng bàn tay thô ráp chạm vào làn da eo mịn như tơ lụa của Tô Mạn, cô bật ra một tiếng rên rách nát. Ranh giới giữa thô tục tột cùng và mềm mại tột cùng, điên cuồng dây dưa tại một điểm.
+
+"Cút ra ngoài."
+
+Ngay khi Tô Mạn nghĩ mình sắp hoàn toàn sa ngã, Chu Đình đột nhiên buông tay, đẩy cô ra cửa. Hắn xoay lưng về phía cô, cái chân tàn phải dưới ánh đèn run rẩy dữ dội. Hắn như một con dã thú trong bóng tối đang liếm vết thương, vừa nguy hiểm, vừa cô tuyệt.
+
+Tô Mạn loạng choạng chạy về phòng mình.
+
+Đóng cửa lại, cô cúi nhìn tay phải. Lòng bàn tay còn vương vị cay nồng của dầu hoa hồng, và dư ôn của vật khổng lồ nhảy lên bất quy tắc kia. Cảm giác bị xâm phạm hoàn toàn, xen lẫn khoái cảm sinh lý đê tiện nào đó, khiến cô xấu hổ che mặt, từ từ trượt ngồi xuống đất.
+
+Phòng bên cạnh, truyền đến tiếng giường gỗ va đập nặng nề, và tiếng thở dốc bị đè nén đến cực hạn của người đàn ông.
+
+Màn đêm nơi núi sâu này, mới chỉ bắt đầu.

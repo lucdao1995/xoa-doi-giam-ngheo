@@ -1,0 +1,24 @@
+---
+title: "Chương 25: Trao đổi trong đêm mưa (H)"
+chapter: 25
+weight: 25
+slug: "chuong-25"
+---
+
+Mưa lớn xé toạc dự định. Đường đứt. Lão trại thành đảo cô lập.
+
+Chu Viễn đứng trước cửa, lo lắng. Mưa vào. "Rò mái!" Hắn chạy ra kho lấy bạt.
+
+Chu Đình đứng sau cô. "Năm phút. Đủ làm em ướt thêm lần nữa."
+
+Hắn ấn cô vào thùng nước. Mưa ngoài kia, nước trong thùng. Hắn xuyên thấu.
+
+"Ầm ầm!"
+
+Sấm. Cô hét, bị tiếng sấm che. Hắn che miệng cô. Nước bắn. Mưa rơi.
+
+"Xong rồi!"
+
+Chu Viễn vào. Hắn rút ngay. Cô mặc áo. "Sợ sấm quá hả?" Chu Viễn ôm cô. Mũi cô đầy mùi thuốc lào.
+
+Nhìn Chu Đình đang đỡ thang cho con. Mưa vẫn rơi. Con đê văn minh cuối cùng đã vỡ.

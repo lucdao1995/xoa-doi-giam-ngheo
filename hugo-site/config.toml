@@ -1,0 +1,24 @@
+baseURL = "/"
+languageCode = "vi-vn"
+title = "Xoá đói giảm nghèo"
+theme = "doc-truyen"
+defaultContentLanguage = "vi"
+enableEmoji = true
+pygmentsUseClasses = true
+
+[params]
+  author = "Ngụy Ám Thời Khắc"
+  genre = "Ngôn tình, Cấm kỵ, Niên thượng, HE"
+  description = "Bản dịch hoàn chỉnh · 30 chương"
+  repo = "https://github.com/<user>/<repo>"  # Sửa sau khi tạo GitHub repo
+
+[permalinks]
+  chuong = "/chuong/:slug/"
+
+[taxonomies]
+  tag = "tags"
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true

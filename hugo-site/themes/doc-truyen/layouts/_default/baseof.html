@@ -1,0 +1,32 @@
+<!DOCTYPE html>
+<html lang="vi">
+<head>
+  <meta charset="UTF-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1.0">
+  <title>{{ block "title" . }}{{ .Site.Title }} - {{ .Site.Params.description }}{{ end }}</title>
+  <link rel="stylesheet" href="/css/style.css">
+  <link rel="icon" href="data:image/svg+xml,<svg xmlns='http://www.w3.org/2000/svg' viewBox='0 0 100 100'><text y='.9em' font-size='90'>📖</text></svg>">
+  <meta name="description" content="{{ .Site.Params.description }}">
+</head>
+<body>
+  <div class="wrapper">
+    {{ block "header" . }}
+    <header class="site-header">
+      <h1><a href="/">{{ .Site.Title }}</a></h1>
+      <p class="subtitle">{{ .Site.Params.author }} · {{ .Site.Params.genre }}</p>
+    </header>
+    {{ end }}
+
+    <main>
+      {{ block "main" . }}{{ end }}
+    </main>
+
+    {{ block "footer" . }}
+    <footer class="site-footer">
+      <p>{{ .Site.Title }} — Bản dịch hoàn chỉnh · {{ len (where .Site.RegularPages "Section" "chuong") }} chương</p>
+      {{ with .Site.Params.repo }}<p><a href="{{ . }}" target="_blank" rel="noopener">GitHub</a></p>{{ end }}
+    </footer>
+    {{ end }}
+  </div>
+</body>
+</html>

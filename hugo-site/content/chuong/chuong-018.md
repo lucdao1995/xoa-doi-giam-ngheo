@@ -1,0 +1,42 @@
+---
+title: "Chương 18: Món nợ máu"
+chapter: 18
+weight: 18
+slug: "chuong-18"
+---
+
+Đêm núi sâu, tối như mực. Gió quét qua cây hòe già, rít thê lương.
+
+"Ầm!"
+
+Cửa bị đẩy mạnh. Mùi rượu nồng nặc. Triệu Đại Bảo xách nửa chai rượu, lảo đảo vào. "Lão Chu, chưa ngủ? Anh em uống rượu."
+
+Chu Đình ngồi lau gậy. Không ngước mắt. "Cút về."
+
+"Ê, nói chuyện với ân nhân thế à?" Triệu Đại Bảo ngồi xuống. "Lão Chu, cái chân này, năm đó tao cõng mày ra khỏi bãi mìn. Không có tao, mày thành bùn rồi."
+
+Tô Mạn sau bình phong, lưng ép tường. Mắt Triệu Đại Bảo liếc về phòng cô.
+
+"Đại Bảo, mạng tao mày giữ." Chu Đình ngước mắt. "Nhưng không phải để mày vào cửa làm càn."
+
+Hai người đối đầu. Tô Mạn sau bình phong, dạ dày co thắt — cảm giác bị coi như gia súc.
+
+"Rắc —!"
+
+Chu Đình nện chai rượu xuống đất. Mảnh văng. "Chu Đình! Mày đừng quá đáng!" Triệu Đại Bảo giật mình. Chu Đình đứng dậy, chân tàn vắt ngang bàn.
+
+"Muốn cô ấy?" Hắn nhìn Triệu Đại Bảo. "Đại Bảo, mạng tao mày cho. Nếu mày muốn lấy, giờ lấy. Nhưng muốn cô ấy... mày hỏi cây gậy này chưa?"
+
+Ánh mắt Triệu Đại Bảo sợ hãi rồi tham lam, lao vào phòng Tô Mạn.
+
+"Đứng lại!"
+
+Chu Đình vung gậy, đánh ngang cổ họng Triệu Đại Bảo. Máu từ chân tàn rỉ ra, nhỏ xuống đất. Mùi máu phủ mùi rượu.
+
+Tô Mạn từ sau bình phong bước ra. Cô nhìn người đàn ông này — đã giày vò cô, nhưng dùng mạng bảo vệ cô. Cô cởi khăn lụa, băng vết thương cho hắn.
+
+"Chu đại ca."
+
+Hắn không nhìn cô, chỉ đưa tay đầy vết chai xoa đầu cô.
+
+Giờ khắc đó cô biết, trong núi đầy sói này, Chu Đình là xiềng xích duy nhất, nhưng cũng là cánh cửa sắt duy nhất.
